@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/autocad-2027/
 Product Price : 4,881 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
